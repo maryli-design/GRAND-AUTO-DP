@@ -1,1 +1,0 @@
-# GRAND-AUTO-DP
